@@ -1,2 +1,3 @@
 # Nicholas Pham's User Page
-# No favorite language, they can all be utilized.
+# I have no favorite language so far, all the languages I know seem to be able to be utilized similarly.
+
